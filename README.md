@@ -9,3 +9,5 @@ This is just an experimantal repository to test out GitHub's functions, and has 
 Also, don't forget to join Gaming Latest, too!
 
 https://gaminglatest.com/?referrer=3492
+
+And also Wario Land 3 Master Quest
