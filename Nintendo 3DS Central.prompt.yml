@@ -1,6 +1,6 @@
 messages:
   - role: system
-    content: ''
+    content: Nintendo 3DS Central
   - role: user
-    content: ''
+    content: Nintendo 3DS Central
 model: openai/gpt-4o
