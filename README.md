@@ -1,4 +1,4 @@
-Join Nintendo 3DS Central today!f
+Join Nintendo 3DS Central today!
 
 https://www.nintendo3dscentral.com/phpBB3/index.php?r=2
 
