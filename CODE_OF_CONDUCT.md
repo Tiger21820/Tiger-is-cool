@@ -1,3 +1,1 @@
 ...
-
-https://www.nintendo3dscentral.com/phpBB3/index.php?r=2
