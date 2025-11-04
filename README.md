@@ -1,4 +1,4 @@
-Join Nintendo 3DS Central today!
+sdfs
 
 https://www.nintendo3dscentral.com/phpBB3/index.php?r=2
 
