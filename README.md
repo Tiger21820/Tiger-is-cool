@@ -11,5 +11,5 @@ Also, don't forget to join Gaming Latest, too!
 https://gaminglatest.com/?referrer=3492
 
 And also Wario Land 3 Master Quest!
-c
+
 https://www.nintendo3dscentral.com/phpBB3/viewtopic.php?t=8
