@@ -1,6 +1,6 @@
 Join Nintendo 3DS Central today!
-c
-https://www.nintendo3dscentral.com/phpBB3/index.php?r=2
+
+https://www.nitendo3dscentral.com/phpBB3/index.php?r=2
 
 Tiger is cool!
 
