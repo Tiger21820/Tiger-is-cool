@@ -1,5 +1,5 @@
-Join Nintendo 3DS Central today!
-
+uJoin Nintendo 3DS Central today!
+yiu
 https://www.nintendo3dscentral.com/phpBB3/index.php?r=2
 
 Tiger is cool!
