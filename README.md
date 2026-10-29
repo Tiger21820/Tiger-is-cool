@@ -1,7 +1,7 @@
 Join Nintendo 3DS Central today!
 
 https://www.nintendo3dscentral.com/phpBB3/app.php/referral/sek7q22h
-7
+
 Tiger is cool!
 
 This is just an experimental repository to test out GitHub's functions, and has no other purpose!
